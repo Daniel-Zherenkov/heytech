@@ -1,1 +1,1 @@
-# very sadly empty repositry :(
+# very sadly empty repository :(
